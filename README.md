@@ -1,6 +1,6 @@
 ## 👋 Olá! Eu sou Gabriela. Seja muito bem vindo (a)! ##
 
-💻 Analista Jr. Accenture Brasil
+💻 Analista Jr. Accenture 
 
 🏡 Brasileira
 
